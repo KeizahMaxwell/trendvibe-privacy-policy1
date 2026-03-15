@@ -1,4 +1,5 @@
 Privacy Policy
+
 TrendVibe Apparel-Trendy Apparel & Merch is a free application built by Keizah Maxwell. This Service is provided at no cost and is intended for use as is.
 
 This page is used to inform users regarding the policies with the collection, use, and disclosure of personal information if anyone decides to use the Service.
